@@ -8,4 +8,6 @@ https://discord.gg/De4NfeMPDt
 wow2.4.3
 wowtbc
 
-欢迎了解和加入https://wowlover.cn:8888/
+加入和了解  https://wowlover.cn:8888/
+
+Pure public welfare server within China, no profit at all, just out of love, welcome new friends to join
